@@ -6,7 +6,9 @@
 📍 Cebu, Philippines  
 🎓 University of Cebu (Main Campus)
 
-💼 Illuminary Peak (**Founder & CEO**) 
+💼 Illuminary Peak (**Founder & CEO**)
+-Software Engineer
+
 
 ---
 
