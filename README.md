@@ -5,6 +5,7 @@
 ### 🚀 Aspiring Web Developer & Tech Assistant | AI Prompting | Entrepreneur
 📍 Cebu, Philippines  
 🎓 University of Cebu (Main Campus)
+💼 Illuminary Peak (**Founder & CEO**) 
 
 ---
 
